@@ -1,1 +1,1 @@
-# simkos..github.io
+# simkos.github.io
